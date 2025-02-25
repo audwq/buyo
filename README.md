@@ -1,6 +1,6 @@
 # 国色天香免费视频观看 成人一卡2卡三卡4卡
 
-最/新/观/看/入/口/ http://www.baidu.com/link?url=ok3_Ml5QdPpOWDUDT8PseJcBKYiYUthhvs1MDf_XWaxIqoOiiz3h9rK40scs4rg4&wd
+<a href="https://m8k3.cc">→→最/新/观/看/入/口←←</a>
 
 
 国色天香免费视频观看 成人一卡2卡三卡4卡
